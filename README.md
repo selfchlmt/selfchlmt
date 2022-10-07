@@ -1,4 +1,9 @@
-### Hi there 👋
+### ★゜・。。・゜゜・。。・゜Holi a todos, me llamo Anita y soy programadora jr ゜・。。・゜゜・。。・゜★
+
+Estoy intentando ampliar mis conocimientos, así que no dudes en darme cualquier consejo o recomendación ;)
+
+☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆*:..☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆*:..☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆*:..
+Soy estudiante universitaria de Ingeniería en Computación, me gusta dormir, escuchar música, jugar Valorant y las alpacas <3
 
 <!--
 **selfchlmt/selfchlmt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
